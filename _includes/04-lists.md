@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+1. Beauty Fault
+  * Real beautiful
+  * Make up
+2. Targer Person
+  * Haoran
+  * Zhangsirui
